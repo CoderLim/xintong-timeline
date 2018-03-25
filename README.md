@@ -12,8 +12,7 @@
 
 6. 2018-03-16 **脐带**脱落；有两种情况**宝宝拉粑粑**：放屁、打嗝（粑粑嗝，是媳妇的奶奶说的，确实是这样）;<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180316.jpg"/></details>
 
-7. 2018-03-17 <details close><summary>常欢和刘彬来看小宝宝</summary><p>[常欢] 带着水果和安慕希来看小宝宝，还给了个红包:rocket::rocket:</p><p>[刘彬] 下午也顶着雨夹雪来了，带来一盒柴鸡蛋和两袋红枣，也送了个红包:sparkles::sparkles:</p></details>
-<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180317.jpg"/></details>
+7. 2018-03-17 <details close><summary>常欢和刘彬来看小宝宝</summary><p>[常欢] 带着水果和安慕希来看小宝宝，还给了个红包:rocket::rocket:</p><p>[刘彬] 下午也顶着雨夹雪来了，带来一盒柴鸡蛋和两袋红枣，也送了个红包:sparkles::sparkles:</p></details><details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180317.jpg"/></details>
 
 8. 2018-03-18 <details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180318.jpg"/></details>
 
