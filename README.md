@@ -30,6 +30,5 @@
 
 11. 2018-03-25 晓峰送宝宝贝多喜游戏毯到了:tada:<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180325.jpg"/></details>
 
-12. 2018-03-26 <details close><summary>**鑫叔叔**来看彤彤了;宝宝**脚腕上的皮**脱的很多，据说是在长个儿，睡眠还不错，一次睡2-3小时</summary>买了箱哇哈哈八宝粥，我以为是酸奶；还包了个红包:tada::tada:</details>
-<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180326.jpg"/></details>
+12. 2018-03-26 <details close><summary>**鑫叔叔**来看彤彤了;宝宝**脚腕上的皮**脱的很多，据说是在长个儿，睡眠还不错，一次睡2-3小时</summary>鸡叔叔买了箱哇哈哈八宝粥，我以为是酸奶；还包了个红包:tada::tada:</details><details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180326.jpg"/></details>
              
