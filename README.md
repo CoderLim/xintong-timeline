@@ -52,7 +52,7 @@
 
 26. 2018-04-05 我清明一个人回家了<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180405.jpg"/></details>
 
-27. 2018-04-06 <details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180406.jpg"/></details>
+27. 2018-04-06 折腾人啊，晚上就是不老实睡觉，冲了点新奶粉喝了不到40ml，把媳妇气的要离家出走（她自己说的）<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180406.jpg"/></details>
 
-28. 2018-04-07 <details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180407.jpg"/></details>
+28. 2018-04-07 彤彤两条腿上都掉皮儿了<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180407.jpg"/></details>
              
