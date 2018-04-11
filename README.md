@@ -55,4 +55,9 @@
 27. 2018-04-06 折腾人啊，晚上就是不老实睡觉，冲了点新奶粉喝了不到40ml，把媳妇气的要离家出走（她自己说的）<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180406.jpg"/></details>
 
 28. 2018-04-07 彤彤两条腿上都掉皮儿了<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180407.jpg"/></details>
+
+29. 2018-04-08 <details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180408.jpg"/></details>
              
+30. 2018-04-09 按阴历(二十四)算今天是满月，说法不一样，有的说阳历有的说阴历，还有的说是满30个自然日；<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180409.jpg"/></details>
+
+31. 2018-04-10 哭到整个脑袋发紫发黑，今天中午就那样，还是肠绞痛吧可能，太可怜了；<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180410.jpg"/></details>
