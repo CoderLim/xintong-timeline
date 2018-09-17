@@ -63,3 +63,7 @@
 31. 2018-04-10 哭到整个脑袋发紫发黑，今天中午就那样，还是肠绞痛吧可能，太可怜了；<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180410.jpg"/></details>
 
 32. 2018-07-07 最近会翻身了，连睡觉有时都会翻身<details close><summary>靓照</summary><img width="300" src="https://github.com/CoderLim/xintong-timeline/blob/master/photos/20180707.jpg"/></details>
+
+33. 2018-08-17 下牙床开始长牙了
+
+34. 2018-09-14 第一次生病，发烧了，据说是急疹，烧3-5天，体温不超过38.5度不需要吃药，超过的话吃美林布洛芬混悬液滴剂或泰诺林，还有小儿柴桂退热颗粒；
